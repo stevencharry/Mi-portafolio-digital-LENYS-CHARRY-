@@ -78,7 +78,7 @@ En el futuro me gustaría ser **profesor de Educación Física**, enseñar a los
 **Grado:** 1103  
 **Institución:** Institución Educativa El Chairá José María Córdoba  
 **Municipio:** Cartagena del Chairá, Caquetá  
-**Correo electrónico:** ____________________
+**Correo electrónico:** stevenfuentes314@gmail.com
 
 ---
 
